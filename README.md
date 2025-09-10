@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Therese aka Mouse 
 - 👀 I’m interested in gaming, books, cars, music, sailing
-- 🌱 I’m currently learning general IT as a first year bachelorstudent - HTML, CSS, JAVA
+- 🌱 I’m currently learning general IT as a second year bachelorstudent - HTML, CSS, JAVA
 - 💞️ I’m looking to collaborate on projects with fellow students
 - 📫 How to reach me - @tuss82 on instagram, littlemouse82 on discord
 - 😄 Pronouns: she/her
